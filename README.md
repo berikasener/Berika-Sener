@@ -1,2 +1,0 @@
-# Berika-ener
-Autobiography
